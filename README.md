@@ -13,3 +13,8 @@ yep, a slash after the dot tester.
 nothing, tho you can spect element. (i wish i could make it moreeeee empty.)
 
 you can use this to test themes.. or can you?
+
+
+
+MADE WITH NICEPAGE.
+dont spare me. this is useless.
