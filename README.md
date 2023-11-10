@@ -1,6 +1,15 @@
-# white screen site
+### ENJOY NOTHING, BUT NOTHING!
+theres no script, theres absolutely nothing!
+Can you imagine how interresing this is? and how usefull? because.. i cant.
+i dont know how could someone enjoy something so useless.
 
-enjoy nothing but a white screen with nothing in it, Very incredible, isnt it?
+### LINK: 
+https://xnko9.github.io/whitescreen.tester/
+
+yep, a slash after the dot tester.
 
 
-(theres no need to use it)
+## Is that the end?
+nothing, tho you can spect element. (i wish i could make it moreeeee empty.)
+
+you can use this to test themes.. or can you?
